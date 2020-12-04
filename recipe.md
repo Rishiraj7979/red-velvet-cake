@@ -1,0 +1,1 @@
+boil milk, add baking soda, curd , keep it in microwave at 120 c for 40min
